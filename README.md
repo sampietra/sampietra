@@ -3,4 +3,4 @@
 『••⌨︎︎ 𝕀𝕋 𝕊𝕥𝕦𝕕𝕖𝕟𝕥••』<br>
 ✎𝙰 𝙵𝚞𝚝𝚞𝚛𝚎 𝙰𝚛𝚝𝚒𝚜𝚝✎<br>
 ❀"𝙱𝚞𝚝 𝚠𝚒𝚗𝚗𝚎𝚛𝚜 𝚍𝚘𝚗'𝚝 𝚚𝚞𝚒𝚝, 𝚜𝚘 𝚍𝚘𝚗'𝚝 𝚢𝚘𝚞 𝚐𝚒𝚟𝚎 𝚞𝚙!"❀<br>
-![image](https://68.media.tumblr.com/5d743a3a7ad4a620bf57077fab484096/tumblr_oplnmzMkRS1uob8tfo1_540.gif)
+![image](https://media1.giphy.com/media/kprByMkudw8s8/giphy.gif?cid=6c09b952o6oidtr7sh5onrwxtwdgjw60zy30acfzvxx1bq4y&ep=v1_gifs_search&rid=giphy.gif&ct=g)
